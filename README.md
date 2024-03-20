@@ -1,5 +1,3 @@
-# Yuya Soneoka
-
 ## About
 
 - 曽根岡 侑也 (Yuya Soneoka)
